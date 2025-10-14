@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm [Your Name]
+# Hi there! 👋 I'm Rameeza fathima
 
 ### 💡 About Me
 I'm a passionate [Your Role] who loves turning raw data into meaningful insights.  
